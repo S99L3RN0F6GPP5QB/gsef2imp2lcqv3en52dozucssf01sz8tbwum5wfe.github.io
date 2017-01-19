@@ -1,2 +1,2 @@
-# Bichon Malts
+# Bichon Maltês
 https://bichonmaltes.com.br/
